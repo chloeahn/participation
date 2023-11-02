@@ -1,2 +1,2 @@
-# participation
-11/1
+Jay Wang
+jaywang@usc.edu
