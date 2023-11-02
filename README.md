@@ -6,3 +6,5 @@ Chloe Ahn
 chloeahn@usc.edu
 Rianne 
 raguas@usc.edu
+Kathryn Song
+kysong@usc.edu
