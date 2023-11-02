@@ -1,3 +1,5 @@
+Jay Wang
+jaywang@usc.edu
 Paulene Ng Chee
 ngchee@usc.edu
 Chloe Ahn
