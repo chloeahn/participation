@@ -1,2 +1,2 @@
-# participation
-11/1
+Paulene Ng Chee
+ngchee@usc.edu
